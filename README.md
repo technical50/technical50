@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Necati Selim GÜNER
+- 👀 I’m interested in Technology, Computing, etc
+- 🌱 I’m currently working...
+- 📫 How to reach me selimguner2000@gmail.com
